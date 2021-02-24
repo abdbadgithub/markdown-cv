@@ -1,7 +1,9 @@
 Abdallah badra
 ============
 ![image info](0E5A2735.jpg)
--------------------     ----------------------------             email:abdalaah_badra@hotmail.com
+
+-------------------     ---------------------------- 
+email:abdalaah_badra@hotmail.com
 
 adress:tripoli-aboou samra 
  
